@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+A vegan feminist transgender black gay man who loves playing Genshin Impact and Honor of Kings
 <!--
 **LoveShikiNatsume/LoveShikiNatsume** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
